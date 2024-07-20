@@ -11,7 +11,10 @@ phighting and maxdesignpro fan ^_^
   c+h is encouraged, i have a touch comfort. i have a crowd discomfort tho
 </p>
 <p align="center">
-  usually seen running around as maxdesignpro / nugget!!
+  mostly seen running around as maxdesignpro / nugget!!
+</p>
+<p align="center">
+  this is the only social account i use for **all** of my skins, if you see anyone else with a skin that is the same/similar to mine, that is not me.
 </p>
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
