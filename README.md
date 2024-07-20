@@ -14,7 +14,7 @@ phighting and maxdesignpro fan ^_^
   mostly seen running around as maxdesignpro / nugget!!
 </p>
 <p align="center">
-  this is the only social account i use for **all** of my skins, if you see anyone else with a skin that is the same/similar to mine, that is not me.
+  this is the only social account i use for ALL of my skins, if you see anyone else with a skin that is the same/similar to mine, that is not me.
 </p>
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
