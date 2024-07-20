@@ -2,18 +2,16 @@
 <h1 align="center">I NATURALLY UNFRIEND, CONTACT ME IF YOU WANT ME TO ADD YOU AGAIN</h1>
 
 <p align="center">
-phighting and maxdesignpro fan :3
-</p>
-
+phighting and maxdesignpro fan ^_^
 </p>
 <p align="center">
-  i don't bite ! (unless ur one of the three people on my bio .)
+  i'm very friendly, but i'm too nervous to interact first
 </p>
 <p align="center">
-  c+h is encouraged, touch comfort. i have a crowd discomfort tho
+  c+h is encouraged, i have a touch comfort. i have a crowd discomfort tho
 </p>
 <p align="center">
-  usually seen running around as maxdesignpro / nugget, heh.
+  usually seen running around as maxdesignpro / nugget!!
 </p>
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
