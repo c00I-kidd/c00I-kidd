@@ -8,7 +8,7 @@ phighting and maxdesignpro fan ^_^
   i'm very friendly, but i'm too nervous to interact first
 </p>
 <p align="center">
-  c+h is encouraged, i have a touch comfort. i have a crowd discomfort tho
+  c+h is encouraged, i have a touch comfort
 </p>
 <p align="center">
   mostly seen running around as maxdesignpro / nugget!!
