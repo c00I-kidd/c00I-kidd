@@ -14,7 +14,7 @@ phighting and maxdesignpro fan ^_^
   mostly seen running around as maxdesignpro / nugget!!
 </p>
 <p align="center">
-  maxdesignpro fandom please iwec im scared of you 
+  maxdesignpro fandom please iwec dont maul me to death
 </p>
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
