@@ -1,6 +1,4 @@
 ## 
-<h1 align="center">I NATURALLY UNFRIEND, CONTACT ME IF YOU WANT ME TO ADD YOU AGAIN</h1>
-
 <p align="center">
 MAXDESIGNPRO HYPERFIXATION (phighting fan!)
 </p>
