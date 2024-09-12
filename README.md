@@ -2,7 +2,7 @@
 <h1 align="center">I NATURALLY UNFRIEND, CONTACT ME IF YOU WANT ME TO ADD YOU AGAIN</h1>
 
 <p align="center">
-phighting and maxdesignpro fan ^_^
+MAXDESIGNPRO HYPERFIXATION (phighting fan!)
 </p>
 <p align="center">
   i'm very friendly, but i'm too nervous to interact first
