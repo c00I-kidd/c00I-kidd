@@ -12,7 +12,7 @@ MAXDESIGNPRO HYPERFIXATION (phighting fan!)
   mostly seen running around as maxdesignpro / nugget!!
 </p>
 <p align="center">
-  maxdesignpro fandom please iwec dont maul me to death
+  iwc please :'3
 </p>
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
