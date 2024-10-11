@@ -1,19 +1,8 @@
 ## 
 <p align="center">
-MAXDESIGNPRO HYPERFIXATION (phighting fan!)
+i'm so sorry
 </p>
-<p align="center">
-  i'm very friendly, but i'm too nervous to interact first
-</p>
-<p align="center">
-  c+h is encouraged, i have a touch comfort
-</p>
-<p align="center">
-  mostly seen running around as maxdesignpro / nugget!!
-</p>
-<p align="center">
-  iwc please :'3
-</p>
+
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
