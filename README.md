@@ -1,7 +1,7 @@
 ## 
 - nsfw jokes dni
 - sprout fictkin
-- int / c+h friendly, i don't talk first tho
+- int / c+h friendly, i rarely talk first tho
 - fruitcake my comfort ship ^_^
 
 <!--
