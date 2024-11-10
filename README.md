@@ -2,7 +2,6 @@
 - nsfw jokes dni
 - sprout fictkin
 - int / c+h friendly, i rarely talk first tho
-- fruitcake my comfort ship ^_^
 
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
