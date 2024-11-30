@@ -2,6 +2,7 @@
 - nsfw jokes dni
 - sprout fictkin
 - int / c+h friendly, i rarely talk first tho
+- interests ; dandy's world, phighting, maxdesignpro
 
 <!--
 **TWIDDLEFINGER/TWIDDLEFINGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
