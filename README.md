@@ -1,5 +1,5 @@
 ## 
-- nsfw jokes dni
+- nsfw jokes + ex friends dni
 - sprout fictkin
 - int / c+h friendly, i rarely talk first tho
 - interests ; dandy's world, phighting, maxdesignpro
