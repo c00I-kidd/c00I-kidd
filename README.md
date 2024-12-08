@@ -1,6 +1,5 @@
 <html>
   <head>
-    <title></title>
   </head>
   <body>
 nsfw jokes + ex friends dni<br>
