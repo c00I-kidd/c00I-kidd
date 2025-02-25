@@ -1,5 +1,6 @@
 <body>
 <p>please w2i !! feel free to c+h though c:</p>
+<p>mentally unwell theze days ^_^"</p>
 <p>very brainrotted and hyper!!</p>
 <p>c00lkidd hvykin, fandoms iwec</p>
 <p> i l0ve signing atabooks & strawpages!! </p>
